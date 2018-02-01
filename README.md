@@ -1,3 +1,6 @@
 # hello-world
-a place where you store ideas, resources, or even share and discuss things with others
-Some more details of my work and history on brainstorms branch
+
+*Artist Bio*
+
+I am Jose Pause Carrero born in the south Bronx April 23, 1975 and raised by my grandmother from Spain. She was a great fan of Pablo Picasso because she was from his hometown. I would be his reincarnation as she stated and geared my life until her last days may she rest in peace. I was sat in front of the television everyday like clockwork to watch the late great Bob Ross in action. I followed up with Disney and as the years progressed I was over whelmed with Marvel and DC comics. I would say for the first decades of my life drawing was preliminary work followed by my painting in the next decade. For about three decades I was part of the graffiti movement aka street art, it is still a rebellious statement when considered an art form. I am considered legendary because of my early roots in NYC and paving the way for many artists who have entered the fellowship in that shape and form. Coming into the digital age I was late 20 years and stubborn in not wanting to cross over in to the digital age. For 20 years into my musical career I struggled with promotion because of not taking advantage of the digital transition. For the past three years I have been in college pursing my Bachelors in graphic design and visual arts. It is also supported by back to back awards as well as honorary memberships to national societies for technical arts. I must admit those skills are the reason why I am able to even be compatible for social media. Other than just putting an image into a post, I am Jose Pause Carrero.
+
